@@ -20,7 +20,7 @@ Somos un grupo de programadores entusiastas, creativos, profesionales y ambicios
 ## Contacto
 
 - Correo Electrónico: hydro.tech.nova23@gmail.com
-- Linkedin: https://tr.ee/2UyCbVIec5
+- Linkedin: https://tr.ee/2UyCbVIec5](https://www.linkedin.com/in/hydrotech-nova-b2949a321/
 - Redes Sociales: https://linktr.ee/Hydro_TechNova
 
 ¡Gracias por ser parte de nuestra comunidad! 🚀
