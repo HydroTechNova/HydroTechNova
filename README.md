@@ -1,4 +1,4 @@
-# Bienvenidos a la Familia de Programadores de Aguscalientes
+# Bienvenidos a HydroTechNova
 
 Somos un grupo de programadores entusiastas, creativos, profesionales y ambiciosos. Nuestra pasión es desarrollar software para web y móvil.
 
